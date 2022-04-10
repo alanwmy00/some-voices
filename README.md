@@ -1,4 +1,18 @@
 # some-voices
+Something I've been longing for doing for a long time.
+
+Everyone should have the right to speak. Since that's not the real case in China, we should help record the voices of the people.
+
+> 2022.02.21
+>
+> These days are really uncomfortable, even if her words are too optimistic, it is difficult to feel the physical and mental torture she has experienced. The last time I saw depression on Weibo was when Dr. Li passed away 20 years ago, and I witnessed the disappearance of #I need Freedom of Speech# one by one, and after a night, only unreal praise for the country remained.
+>
+> Going forward may be the large-scale deletion of posts after the national table tennis collectively supported Liu Guoliang in 2017. The Internet has no memory, or the Chinese Internet has no memory, and neither does the Chinese media. The most difficult thing to understand is that even the 2002 World Cup player list needs to be "updated" because of politics.
+I hope to see the day when "CCTV surnamed the party, absolute loyalty" returns to "the mouthpiece of the masses and the supervision of opinion of the citizens". Note that it is the citizens, not the "people" in Chinese definition.
+>
+> Can't understand why the first thing I did after seeing her new Weibo was to take a screenshot. But if I chose not to help record the voice of a "person!" suppressed by the authority, I would have a hard time on my conscience.
+
+------
 
 一件想做了挺久的事了。
 
@@ -13,15 +27,3 @@
 >
 > 无法理解为什么看到她的新微博后要做的第一件事竟然是先截屏。可若是选择不帮忙记录被一个公权打压的“人！”的声音，自己良心上是会过不去的。
 
-Something I've been longing for doing for a long time.
-
-Everyone should have the right to speak. Since that's not the real case in China, we should help record the voices of the people.
-
-> 2022.02.21
->
-> These days are really uncomfortable, even if her words are too optimistic, it is difficult to feel the physical and mental torture she has experienced. The last time I saw depression on Weibo was when Dr. Li passed away 20 years ago, and I witnessed the disappearance of #I need Freedom of Speech# one by one, and after a night, only unreal praise for the country remained.
->
-> Going forward may be the large-scale deletion of posts after the national table tennis collectively supported Liu Guoliang in 2017. The Internet has no memory, or the Chinese Internet has no memory, and neither does the Chinese media. The most difficult thing to understand is that even the 2002 World Cup player list needs to be "updated" because of politics.
-I hope to see the day when "CCTV surnamed the party, absolute loyalty" returns to "the mouthpiece of the masses and the supervision of opinion of the citizens". Note that it is the citizens, not the "people" in Chinese definition.
->
-> Can't understand why the first thing I did after seeing her new Weibo was to take a screenshot. But if I chose not to help record the voice of a "person!" suppressed by the authority, I would have a hard time on my conscience.
